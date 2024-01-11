@@ -1,1 +1,1 @@
-![image](https://github.com/timothyericsson/Social-Detox/assets/132996353/8c95c4fb-0ffa-4b7a-bf3d-c48912be38a7)
+![image](https://github.com/timothyericsson/Social-Detox/assets/132996353/b3298c28-43e6-4f21-8e0a-e3eb7bde5c92)
